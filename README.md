@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @M4rb3L
+- 👀 I’m interested in a Career Change (currently still painter & varnisher).
+- 🌱 I’m currently trying to learn programming.
+- 💞️ First of all, before I would think about collaboration, I start with coding level zero.
+- 📫 You can reach me here, but why should you?
+- 😄 Pronouns: I don't understand this request.
+- ⚡ Fun fact: I'm not that funny...
